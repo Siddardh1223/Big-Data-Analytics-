@@ -10,3 +10,6 @@ https://drive.google.com/file/d/1nsEiLypOgwYpz5FVprZqBvZROAU7W2XS/view?usp=shari
 
 ICP 6 Video Link:
 https://drive.google.com/file/d/1rQtGqer-n07COT4hVXPgNPfh_a3hGITZ/view?usp=sharing
+
+ICP 7 Video Link:
+https://drive.google.com/file/d/1J7zPDOqbzHJUOpR_ALzskHAohCijUerL/view?usp=sharing
